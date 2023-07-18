@@ -1,0 +1,3 @@
+- 👋 phelipe.
+- 👀 designer, editor.
+- 🌱 só pra deixar no disc
